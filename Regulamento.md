@@ -13,7 +13,7 @@ O **Startup One** incentiva o empreendedorismo e a inovação, aplicando o conhe
 | Evento | Data / previsão |
 | :--- | :--- |
 | **Inscrição das equipes** | Até **09 de maio de 2026** — formulário: *(link a publicar)* |
-| **Apresentação dos pitchs (1ª etapa, eliminatória)** | **29 de maio de 2026** (19:30 às 23:00) |
+| **Apresentação dos pitchs (1ª etapa, eliminatória)** | **27 de maio de 2026** Quarta-feira (19:30 às 23:00) - Online) |
 | **Aviso às equipes classificadas** (próximas etapas e orientações) | **Final de junho de 2026** * |
 | **Bancas intermediárias** (específicas para grupos classificados) | **Julho a setembro de 2026** * |
 | **2ª versão do pitch / banca institucional (todas as graduações)** | **Setembro ou outubro de 2026** * |
